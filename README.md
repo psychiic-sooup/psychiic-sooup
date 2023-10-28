@@ -4,6 +4,8 @@ Hello! Welcome to my GITHUB Page!! You can also read my Carrd for more info!
 I go by many names! But the one I prefer is Lamb!
 I go by He/They + Hy/Hymm neos! But I MUCH prefer He/Him pronouns :)
 
+(I LOVE YOU NARINDER!!)
+
 These are my IRLS! DOUBLES PLEASE DNI!!
 - Lamb/Lambert
 - Fizzarolli
@@ -21,7 +23,6 @@ BEFORE YOU INT!!
 - Please do not cover me or anyone I am sitting with
 - I will be friendly if YOU are friendly.
 - I will not interact if you: BOOP/SIT ON/ARE RUDE
-- PLEASE DO NOT TALK ABOUT OR MENTION "THE ONE WHO WAITS"/NARINDER
 
 COMFORTS/INTERESTS
 - JESTERS/CLOWNS/JESTERCORE
